@@ -1,2 +1,2 @@
 # themasontm
-Not that I trademarked "Mason" or maybe just not yet!
+Not that I trademarked "Mason" or maybe it's just not yet!
